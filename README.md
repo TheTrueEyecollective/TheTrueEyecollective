@@ -7,9 +7,13 @@
 ·:*¨༺ ♱✮♱ ༻¨*:·
 
 ✩°｡ ⋆⸜ 🎧name ; scythe/ophelia
+
 ★📎 {} .. she/they
+
 ☆💬。・"church bells"
+
 ★‧₊˚ ☁️⋅ pansexual
+
 ☆・．❕「DID SYSTEM」
 
 ·:*¨༺ ♱✮♱ ༻¨*:·
