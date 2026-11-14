@@ -8,9 +8,10 @@
 
 ![](https://64.media.tumblr.com/36f7818136ecfef6405a0279d1ff4239/3e95c5cd6ea0e2b2-ab/s1280x1920/042540ee0efd8cab9bd72f30a4fcb1e091579b6c.pnj)
 
-![](https://64.media.tumblr.com/bc9a0846c8b097d3604121880a0ea85e/5429fa3cde06ef52-5d/s640x960/6315c183ae376fc6b651329c1485c642af4de819.jpg) [](https://thetrueeyechapel.atabook.org/)
+![](https://64.media.tumblr.com/bc9a0846c8b097d3604121880a0ea85e/5429fa3cde06ef52-5d/s640x960/6315c183ae376fc6b651329c1485c642af4de819.jpg)
 ·:*¨༺ ♱✮♱ ༻¨*:·
 
+[Atabook](https://thetrueeyechapel.atabook.org/)
 ✩°｡ ⋆⸜ 🎧name ; scythe/ophelia
 
 ★📎 {} .. she/they
