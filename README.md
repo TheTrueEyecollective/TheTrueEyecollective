@@ -11,7 +11,7 @@
 ![](https://64.media.tumblr.com/bc9a0846c8b097d3604121880a0ea85e/5429fa3cde06ef52-5d/s640x960/6315c183ae376fc6b651329c1485c642af4de819.jpg)
 ·:*¨༺ ♱✮♱ ༻¨*:·
 
-[Atabook](https://thetrueeyechapel.atabook.org/)
+[Atabook](https://thetrueeyechapel.atabook.org/)    [strawpage](https://follyseternallimbo.straw.page/)
 ✩°｡ ⋆⸜ 🎧name ; scythe/ophelia
 
 ★📎 {} .. she/they
